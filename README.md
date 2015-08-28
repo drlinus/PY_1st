@@ -1,1 +1,1 @@
-1sr ver.
+1st ver.
